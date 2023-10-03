@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-### LiquidBounceMinus Reborn is a different version of LiquidBounceMinus
+### MinusBounce is a client that it is lightweight and better
 
 - Contact us via discord:
  + tlz
