@@ -12,10 +12,11 @@
   > ### 😜 Developers
 
   - Contact us via discord:
-    + tuilazerotwo (tlz@tuilazerotwo.xyz <- mail)
+    + _realserenity
     + toidicakhia 
     + longathelstan
     + tuansocool8291
+    + tuilazerotwo (tlz@tuilazerotwo.xyz <- mail)
 
 ★━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━★
 > ### 😫 Facts
